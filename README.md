@@ -1,2 +1,0 @@
-# NguyenVanManh
-T3H
